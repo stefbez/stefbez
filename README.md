@@ -43,6 +43,17 @@ I'm currently searching for a permanent role to utilise my strengths and to cont
 🕵️‍♂️ A good escape room. I've completed over 30 with a 100% success rate... for now!
 
 
+---
+
+## My Github Stats
+
+<a href="https://github.com/jstrieb/github-stats" target="_blank">
+
+![](https://github.com/stefbez/github-stats/blob/master/generated/overview.svg)
+![](https://github.com/stefbez/github-stats/blob/master/generated/languages.svg)
+
+</a>
+
 
 
 
