@@ -28,7 +28,7 @@ I'm currently searching for a permanent role to utilise my strengths and to cont
 
 #### I own:
 
-🐕  a Shiba Inu, Oscar, <img src="https://memegenerator.net/img/instances/50427098.jpg" alt="Doge Meme" width="75px" height="75px"> and have a Border Collie puppy on the way (name recommendations welcome!).
+🐕  a Shiba Inu, Oscar, <img src="https://memegenerator.net/img/instances/50427098.jpg" alt="Doge Meme" width="75px" height="75px"> and a 🐶 Border Collie puppy, Freddie.
 
 #### I support: 
 
@@ -36,7 +36,7 @@ I'm currently searching for a permanent role to utilise my strengths and to cont
 
 🏈 Dallas Cowboys
 
-🏎 and always keep up with F1, (with a soft spot for McLaren)
+🏎 and always keep up with F1 (with a soft spot for McLaren)
 
 #### I love:
 
