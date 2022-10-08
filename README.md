@@ -2,7 +2,7 @@
 
 ---
 
-I'm currently a Senior Digital Developer at Global, focussing maily on front-end work. I also play around with some projects in my spare time and enjoy working with both front-end and back-end technologies, mainly using Python and JavaScript.
+I'm currently a Digital Developer at Global, focussing maily on frontend work. I also play around with some projects in my spare time and enjoy working with both front-end and back-end technologies, mainly using JavaScript.
 
 ---
 
