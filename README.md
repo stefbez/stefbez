@@ -26,9 +26,9 @@ I'm currently searching for a permanent role to utilise my strengths and to cont
 
 ## A bit about me away from coding
 
-#### I own:
+#### I have:
 
-🐕  a Shiba Inu, Oscar, <img src="https://memegenerator.net/img/instances/50427098.jpg" alt="Doge Meme" width="75px" height="75px"> and a 🐶 Border Collie puppy, Freddie.
+🐕 🐶 A Shiba Inu and a Border Collie
 
 #### I support: 
 
@@ -36,7 +36,7 @@ I'm currently searching for a permanent role to utilise my strengths and to cont
 
 🏈 Dallas Cowboys
 
-🏎 and always keep up with F1 (with a soft spot for McLaren)
+🏎 McLaren
 
 #### I love:
 
