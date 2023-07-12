@@ -18,8 +18,6 @@ I'm currently a Digital Developer at Global, focussing maily on frontend work. I
 
 ## 🤩 If you like what you see above...
 
-I'm currently searching for a permanent role to utilise my strengths and to continue learning!
-
 [Download my CV](cv/stefan-bezzant-cv.pdf)
 
 ---
