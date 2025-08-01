@@ -18,7 +18,7 @@ I'm currently a Digital Developer at Global, focussing maily on frontend work. I
 
 ## 🤩 If you like what you see above...
 
-[Download my CV](cv/StefanBezzantCV.pdf)
+[Download my CV](StefanBezzantCV.pdf)
 
 ---
 
